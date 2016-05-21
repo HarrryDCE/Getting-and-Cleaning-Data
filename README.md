@@ -1,1 +1,0 @@
-# Information regarding Course project
